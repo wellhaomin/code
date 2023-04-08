@@ -1,3 +1,3 @@
 # code
 
-The new thecnology I have seen.
+The new thecnologies I have seen.
